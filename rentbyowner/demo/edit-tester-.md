@@ -1,1 +1,0 @@
-"Empowering your tomorrow, today."
